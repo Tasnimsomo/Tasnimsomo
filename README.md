@@ -16,3 +16,4 @@
 [![](https://visitcount.itsvg.in/api?id=Tasnimsomo&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+![17-short-specializations-certificate-tasnim-somo (1)](https://github.com/user-attachments/assets/277e1e31-bd3e-4dec-95fd-4fa31909bc29)
